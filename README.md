@@ -1,4 +1,4 @@
 Ging
 ====
 
-Something
+Fuck nerds
